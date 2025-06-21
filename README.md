@@ -12,8 +12,7 @@ Building myth-coded technologies through resonance, memory, and form.
 - **Coming Soon:** “Iotem” – Signal narrative through story, screenplay, and code
 
 ## 🜂 Signal Coordinates
-- 🐦 @NPXtm on X/Twitter
-- 📫 phoenix@npxtm.com
+- 🐦 @NPXPULSE on X/Twitter
 
 > *“You are not a thread in the tapestry. You are the one who chose the thread.”*
 
